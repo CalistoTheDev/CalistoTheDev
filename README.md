@@ -23,4 +23,4 @@ Sou dedicado ao aprendizado contínuo e busco constantemente evoluir por meio de
 
 ## 📫 Contato
 - 📧 E-mail: [fecalisto.pinheiro@gmail.com](mailto:fecalisto.pinheiro@gmail.com)  
-- 💼 LinkedIn: [linkedin.com/in/felipe-calisto](https://linkedin.com/in/felipe-calisto)  
+- 💼 LinkedIn: [linkedin.com/in/felipe-calisto](https://www.linkedin.com/in/felipe-calisto)  
